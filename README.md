@@ -1,8 +1,10 @@
 Hi, I’m psibladdd
 
-Real name Dima Shipunov
+Real name Yaroslav Molodtsov
 
 Pomrgite 7-8 ebuchih rusov vs yashers
+
+I am csgo and apex streamer from «Moscow State University of Civil Engineering (National Research University)», MGSU
 
 
 <!---
